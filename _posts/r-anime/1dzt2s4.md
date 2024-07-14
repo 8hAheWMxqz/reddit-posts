@@ -1,3 +1,7 @@
+Related post: [https://www.reddit.com/r/anime/comments/1dzt2s4/a_quintessential_guide_to_cute_girls_hobby_anime/](https://www.reddit.com/r/anime/comments/1dzt2s4/a_quintessential_guide_to_cute_girls_hobby_anime/)
+
+---
+
 Last Update: 2024-07-14
 
 ---
@@ -214,3 +218,8 @@ Last Update: 2024-07-14
 |Yume-iro Pâtissière                                               |FA    |2009-10-04|2010-09-26|TV        |7.84     |[MAL](https://myanimelist.net/anime/6586/) |
 |Yuru Camp△                                                        |FA    |2018-01-04|2018-03-22|TV        |8.27     |[MAL](https://myanimelist.net/anime/34798/)|
 |Yuyushiki                                                         |FA    |2013-04-10|2013-06-26|TV        |7.35     |[MAL](https://myanimelist.net/anime/15911/)|
+
+---
+
+Related image:
+![image](55s08mo6cobd1.png)
